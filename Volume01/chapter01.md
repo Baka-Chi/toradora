@@ -4,12 +4,12 @@ Seven-thirty in the morning on a fine day, and yet it was dim inside the apartme
 
 "I give up! I just can't get this right!"
 
-A hand frustratedly wiped the condensation from the mirror. The run-down bathroom was foggy from an early morning shower. So after wiping the mirror, it immediately clouded up again. It was pointless to take anger out on the mirror no matter how frustrated one was...
+A hand frustratedly wiped the condensation from the mirror. The run-down bathroom was foggy from an early morning shower. Even after the mirror was wiped, it immediately clouded up again. It was pointless to take anger out on a mirror no matter how frustrated one was...
 
 "This is a rip-off!"
 
-*Give yourself a gentle appearance with floating bangs* was the claim in the latest men's fashion magazine. Ryūji Takasu's bangs were now "floating":
-as the article instructed, he had pulled his bangs out at length, blow-dried them until they stood up, and then gently rubbed them sideways with some hair gel.
+*Give yourself a gentle appearance with floating bangs* was the claim in the latest men's fashion magazine. Ryūji Takasu's bangs were now "floating."
+As the article instructed, he had pulled his bangs out at length, blow-dried them until they stood up, and then gently rubbed them sideways with some hair gel.
 
 He even woke up half an hour earlier than usual in order to do his hair like the model's. "Trying to change my face just by doing my bangs was foolish of me," he thought.
 
@@ -35,14 +35,13 @@ Of course, it wasn't quite that easy, and he ended up tearing the tissues to shr
 
 "Ah...?" A high-pitched avian voice responded to the high-school student's greeting.
 
-"Good, you're awake."  Getting himself together again, Ryūji went barefoot into the wooden-floored kitchen, took some prepared pet food and spare newspapers, and headed towards the corner of the tatami-covered living room.
-Removing the cloth over the birdcage there, Ryūji greeted his parakeet.
+"Good, you're awake."  Getting himself together again, Ryūji went barefoot into the wooden-floored kitchen, took some prepared pet food and spare newspapers, and headed towards the corner of the tatami mat-covered living room. Removing the cloth over the birdcage there, Ryūji greeted his parakeet.
 
 Now, other people may kept their pets differently, but this was how the Takasus kept their pet parakeet. Because Inko-chan looked rather disheveled when he slept, they covered him with a cloth at night.
 
 "Good morning, Inko-chan."
 
-A yellow parakeet, that was Inko-chan. As usual, Ryūji added parakeet food to the Inko-chan's bowl while talking to him.
+A yellow parakeet: that was Inko-chan. As usual, Ryūji added parakeet food to the Inko-chan's bowl while talking to him.
 
 "Go-good...morning," Inko-chan managed to reply in Japanese as his eyes blinked upwards in a rather unpleasant and enigmatic way. Though he had just woken up, it looked like he was in quite a good mood. It was actually rather adorable.
 
@@ -60,7 +59,7 @@ His eyes squinting, one could vaguely see the gray tongue that stuck out of his 
 
 "Argh...Why are birds so dumb? As expected when you have a brain that only weighs a gram," Ryūji sighed, wrapping up the soiled newspaper. He threw the newspaper into a plastic bag. As he was about to put the bag together with the other trash in the kitchen, he heard: "Where...are...you...going..."
 
-The childish woman lying behind the fusuma seemed to have woken up as well.
+The childish woman lying behind the room dividers seemed to have woken up as well.
 
 "Ryū-chan, is that your uniform you're wearing? Why?" she asked wearily.
 
@@ -110,8 +109,8 @@ Yasuko poured the contents of the convenience store bag out and rummaged through
 
 Their darkened window faced south. It had been six years since they moved in here. Inside the little apartment where the two of them lived, their only source of natural light came from the south-facing window.
 
-As the entrance was on the north and because they were abutted on the east and west sides by their neighbors' houses, only the south side had windows.
-Sunlight had been abundant, especially in the mornings. There used to be no need to turn on the lights from sunrise to sunset, unless it was raining.
+As the entrance faced north and because they were abutted on the east and west sides by their neighbors' houses, only the south side had windows.
+Sunlight had always been plentiful, especially in the mornings. There used to be no need to turn on the lights from sunrise to sunset, unless it was raining.
 
 The bright sunlight always used to shine abundantly on Ryūji while preparing breakfast in his uniform for the two of them, and on Yasuko who would be sleeping soundly.
 
