@@ -1,109 +1,118 @@
 ===Chapter 2===
 
 
-With vacation over, the next shock came early the following morning.
 
-It was just a bit past eight in the morning.
 
-Their homeroom teacher arrived earlier than ever, and homeroom started ahead of time as well,
 
-"Ooh…"
+Though it began quite tumultuously, Takasu Ryūji's new life as a second year high school student went rather smoothly.
 
----All hell had broken loose.
 
-This just might be the kind of situation where that phrase applies.  Unable to stop himself from crying out, Ryūji sat in disbelief.  It was hard to believe, or rather, he didn’t want to believe it.  But, it didn’t seem like it was a dream.
 
-With his mouth agape, he turned around to face Kitamura and rapidly exclaimed, "I never heard anything about this," but Kitamura just casually raised his hand with a "Hey" and a nonchalant expression.
+This was due to many reasons.
 
-Anyway, he couldn’t just ignore reality.
+The rumor that "Takasu-kun is a delinquent" got clarified much earlier than Ryūji's pessimistic self could ever have imagined. Luckily, many of Ryūji's old classmates, including Kitamura, were also in the same class this year. More importantly, he was defeated by the Palmtop Tiger in a matter of seconds, leading everyone to quickly conclude that he was just a 'normal guy' (Ryūji even wanted to sincerely thank Aisaka Taiga just for that).
 
-Partially frozen, Ryūji’s gaze was three-times worse than usual and he could do nothing but accept the hellish situation as it was.
+Secondly, he avoided having to do annoying work in the class committee and his seat that was chosen through the drawing of lots was the third seat from the front in the window aisle - it was a great seat where he could sit back and relax. The homeroom teacher was the same as last year's (Koigakubo Yuri, 29 years old, and an unquestionably single lady); aside from her still being single at such an age, Ryūji had no beef with her.
 
-The source of Ryūji’s distress walked up to the class platform with slender legs and beautiful hair that swayed with each step.  
+Besides...
 
-Looking straight ahead with a little embarrassment, her smile almost blended in perfectly amidst the gentle morning sunlight.  Sure enough, while slowly raising her eyes---  
+"...If I do that, then the sides of the bucket will harden! What's that called? You mean the part near the edge? But since the middle is still watery, when I pour the soft jelly by the edges like this I'll have to..."
 
-"Starting today, I’ll be a student here at this school; my name is Ami Kawashima.  Please look after me."
+"Ow!"
 
----An emphatically pure and genuine looking visage.
+"Wah, Takasu-kun! I'm sorry..."
 
-''This is ridiculous.''
+The most important reason was this:
 
-"…How, did things, like this..."
+His sunshine, Kushieda Minori, had now become his classmate. It was this reason alone that made Ryūji's daily life as colorful as a rose and as dazzling as sunlight... Even after she had accidentally poked him in the eye, her sparkle hardly diminished.
 
-No one paid any attention to the moaning voice.  And so oblivious to Ryūji who was in shock, the rest of the class continued on,
+"A, are you alright? I'm so sorry, I didn't notice you behind me! Uwaa... Did my middle finger just poke into the white bit of your eye?"
 
-"E, eh, that girl, didn’t she appear in a magazine?!"
+"...Don't worry about it, it's nothing."
 
-"What?!  Really?!  But, she’s really cute!"
+"I'm so very sorry! Hmm, where were we? Oh yeah, I was saying, I have to pour the jelly in the bucket like this..."
 
-"No way", "It’s gotta be a lie", "Incredible, that’s incredible"…The girls who liked to follow trends were in the middle of making a big fuss.  Nearly all the guys, on the other hand, were acting suspiciously subdued, remaining oddly silent and just staring enraptured with passionate eyes at the pure angel on the platform.  Noto Hisamitsu, Ryūji's friend who wore black-rimmed glasses and sat a bit in front and off to the side, very slowly turned around,
+"Ow!"
 
-"Jackpot…!"
+"Wah...! It looks like I poked it even deeper! I'm so sorry!"
 
-Murmuring warmly as if delighted from the bottom of his heart, Noto looked at Ryūji and tightly clenched his fist.
+''It's okay, I'm fine,'' Ryūji gestured with a wave of his hand. Even this was a blessing for him. "I'm sorry, I'm so sorry!" said Minori as she bowed her head, which gave off a fragrance that even a fly would have nothing to complain about. No matter what, the Minori that was currently apologizing to him had her eyes only on him, so even when his eyes got poked twice, it was a small price to pay to be able to experience such bliss.
 
-"…Y, yea…"
+He wouldn't have minded it even if she wasn't talking to him. He would be just as happy if she were just speaking to someone sitting near him, since he would be able to hear Minori's cute voice. In trying to describe how big the bucket was, she waved her hands to mimic a circle shape; and every time she did so, she would come into contact with him (even though it was just his eyeballs).
 
-Ryūji replied vaguely, but rather than clench his fist back, he simply gulped.
+''But, just what is this bucket thing that she's talking about?'' Noticing Ryūji's puzzled expression, she explained,
 
-Ami looked beautiful upon the platform.  Her skin seemed even smoother and fairer than yesterday; and her large jewel-like eyes seemed to be shining even brighter than yesterday.  Without forgetting to smile, she tilted her head as she looked over the class.  Her somewhat immature appearance was most likely due to her petite chin, but she had a perfect eight-head figure.  Ami was the absolute epitome of beauty, almost to the point of obscuring his sense of reality.  Ryūji’s headache had also become absolute.
+"We're talking about the pudding that I made using a bucket."
 
-He covertly turned his head to look at a seat somewhere towards the center of the class.  Right now, the person who should be experiencing the worst shock was sitting over in that direction.  That would be the one called Taiga.
+Minori grabbed her finger tightly (Hopefully this time I won't poke into anyone!) as she explained in a serious tone. Though 'explain' didn't seem to be the right word...
 
-He spotted her.
+"Does Takasu-kun like pudding?"
 
-Then,
+''We're having a conversation!'' Ryūji's heart started to beat so rapidly that he wasn't able to utter a decent word, his anxiousness was driving him mad. After waiting so long for this chance...
 
-"…Oh…"
+"...Er..."
 
-He immediately turned away.  She was making a face that shouldn’t be seen.
+And that was all he could muster. ''She's probably thinking how boring this guy is... Probably thinking about not ever speaking to this guy ever again...'' While Ryūji frantically tried to think of what to do, Minori continued musing about her ultimate desire to make pudding in a bucket.
 
-Her eyebrows were raised nearly vertical and her eyes had clouded over moistly, looking as though they had liquefied into a thickly bubbling lava flow.  Her lips that were just like a rose trembled visibly and were turned up ominously; her face was puffed out as if she were holding a bomb in her mouth, possibly a manifestation of her barely contained fury directed against the real world that she couldn’t stand.  It seemed as if a weak-bodied person might die simply from meeting her gaze. 
+"But I haven't been successful. Maybe it was because it was too big, so it's hard for it to have the sticky and soft bits gel together in one shape... Oh yeah, I can show it to you as well, Takasu-kun! Think of it as an apology for poking you in the eye!" 
 
-From where she stood, Ami could also probably notice Taiga volleying her serious killing intent from the middle of the classroom.  Just for an instant, Ami raised her eyebrows ever so slightly.  However, she acted just as one would expect of a professional who was used to the public eye.
+"Eh? ...S...Show me...?"
 
-"Everyone!  Please call me Ami!"
+''Could it be that she wants me to try her pudding?'' Ryūji's eyes became sharper as he stared at Minori's cute smile. Minori nodded and replied,
 
-Flawlessly pretending to be oblivious, she smiled prettily and wholeheartedly.  But that action alone was more than enough to inspire dread in Ryūji.  ''Women, were they all like this?''  Shuddering from a sudden chill, he instinctively fastened a button on his open <span class="plainlinks">[http://en.wikipedia.org/wiki/gakuran gakuran]</span> uniform.
+"Yeah, I'll show you. Let me go and get it."
 
-“Everyone!  Let’s get along with our new friend!  Now, let’s welcome her!”
+''Could I get any luckier than this? I'm glad I got poked in the eye!'' As Ryūji watched Minori excitedly walk towards her desk, he suddenly felt like running away for some reason.
 
-Strangely discernible from the welcoming applause, their homeroom teacher and well-established bachelorette, Yuri Koigakubo (29), raised her voice.  Wrapping an arm around Ami’s shoulder with overfamiliarity, "They’re all good kids, so you’ll get along right away!", she exclaimed while striking a victory pose…He wondered if something had happened over the break, as her personality seemed to have completely changed.  She used to wear fashionable pink ensembles, but at the moment she was wearing a rough hooded jersey,
+''If she really brought the pudding over, what expression should I have when eating it? It's not lunch time now, so it'll look weird for a guy to feast hard on just a pudding. Besides, if she brings the pudding, should I eat it right away? Or should I just thank her and put it away for later?''
 
-"Well then, it’s a fresh start for Class 2-C~!"
+"Damn... I, I don't know already...!"
 
-She gave a vigorous thumbs up.
+Nervously, he began to caress his face. ''No matter what, I should at least clear my desk.'' He had decided to just eat it on the spot.
 
-"…Tch."
+Feeling excited, Ryūji's heart beat even faster. He slowly moved his gaze away from Minori, who had just come back, since she was just too dazzling to look at directly. Minori revealed a cheerful smile and tilted her head as she stood in front of him, and then...
 
-It seemed even a tongue click from Taiga, who was giving off a suffocating aura of displeasure while looking up from below, wasn’t enough to phase her today. 
+"Here you go, Takasu-kun,"
 
-"…Hey, stop it with that kind of noise!  Try smiling happily for one day at least!"
+Through her very tender voice, Ryūji thought he could even see a heart shape appearing after she had uttered 'Takasu-kun.' Slowly lifting his head in trepidation, Ryūji politely received the object that she gave him.
 
-"…Tch."
+"...Ah, um. This..."
 
-"…Just for today if you can, to welcome our new friend."
+It was much thinner and lighter than he had expected...
 
-"…Tch."
+"...This sure is a great photo..."
 
-Nugunuguu---Reduced to making sounds without articulating, she suddenly clutched her head.  Then almost as if doing a somersault, she spun around ending up at her desk seeming depressed and hiding her face in her arms.
+"But it looks gross, doesn't it?"
 
-"M, Miss Yuri…?"
+''So she's showing me photos, not pudding.'' Even though the stuff shown in the photo did look gross, it was still mind-blowing. On top of a plastic mat stood a large bucket, and it contained some sort of light yellowish cream... No, it looked more like slime. Though saying this would have been disrespectful to Minori, it just didn't look like pudding. In the second photo, the slime was being slowly and stickily poured out, leaving the whole place splotched with solid and watery substances. And then, in the third photo...
 
-"Um, are you all right…?"
+"It even smelled strange... I think it's because I didn't wash the bucket thoroughly!"
 
-Not surprisingly, the classroom was pretty much silenced by the scene, while Ami, who stood nearby, no longer smiled as she watched.  The bachelorette finally looked up, after a full fifteen seconds had passed.  While trembling a little and hanging her head just a bit, she sounded regretful as, with some difficulty, she started talking about her private affairs.
+Minori knelt on one leg while eating the piece of slime with a big spoon. ''I want that photo!'' Just as Ryūji was thinking about that...
 
-"…During the break, I, my last chance…the very last one,…it ended in failure…~!  So, I thought I'd have to try my best, I'd need to work hard at my job, but, but…Just forget it! It’s not like any of you will understand anyway! You guys, I’m sure you’ll understand when you’re older, so…! Kitamura-kun, please take care of the rest!"
+"Thanks for looking! I still need to show these to Taiga as well. Eh? Where'd she go? She was here a minute ago."
 
-"Well then."
+Coolly taking back her photos, Minori quickly left Ryūji behind and ran off to look for the Palmtop Tiger, Aisaka Taiga, who was listening only a moment ago. Thus ended a blissful period.
 
-Having been called upon, Kitamura got to his feet and, turning around to face the class, spoke,
+''...Still need to show these to Taiga... Eh?''
 
-"Everybody, please listen to me. Ami is actually a friend of mine from some time ago. I had no idea she was going to transfer to our class, but please try to get along.  Well, that’s all for this morning’s homeroom. Stand! Bow!"
+Ryūji sighed as he saw his crush leave the classroom in search of her good friend.
 
-‘Enough already~’---Like an explosion, the bachelorette’s pitiable moan burst amidst the noisy classroom before fading into nothingness.
+He was very lucky to be classmates with her. He was able to see Minori anytime during school, so he no longer had to sneak past her classroom and peek through the door just to have a look at her smile. Even a center back defender gets his chance at scoring goals. If this was not being lucky, he didn't know what was.
+
+But in order to get even closer to her, there was one obstacle he had to pass through... And that was Aisaka Taiga, who was always seen standing next to Minori, at all times.
+
+Ever since the Opening Ceremony, Ryūji had tried to keep his distance from Aisaka. It seemed like she was a very difficult person to handle, but if he avoided Aisaka, he would not be able to get closer to Minori, and that was the worst outcome for him (although this wasn't the only reason he hadn't been able to strike up a conversation with Minori).
+
+Aisaka didn't seem to register Ryūji on her radar in any way, while Ryūji tried to avoid any opportunity of them coming into contact with each other; so far she had not made herself a hindrance.
+
+Ryūji's main goal was to try and get rid of the Palmtop Tiger and approach Minori alone. If he could accumulate those lucky moments like before, it might still be possible.
+
+
+
+And so, Ryūji's bittersweet life had been going quite smoothly.
+
+...Until today, that is, just after school.
 
 
 
@@ -113,373 +122,477 @@ Having been called upon, Kitamura got to his feet and, turning around to face th
 
 
 
-"Ka, Kawashima-san, shall I move it?!"
+"WHOA...!"
 
-"No, let me!"
+As he opened the classroom door, he was left speechless by what he saw inside...
 
-"I’ll move it for you, definitely!"
+There were two, no, three chairs being thrown in the air.
 
-"No, no, choose me!  Or rather, just sit back and leave it to me."
+This was followed by a loud crashing noise as they landed on the floor. Amidst the loud noise and flying chairs, a figure could be seen flashing before his eyes.
 
-In an instant, a crowd of boys moved into Ami's vicinity, who in turn was about to move her desk and chair. The more reserved ones watched the crowd from a distance looking jealous. It seemed like everyone wanted to get to know her one way or another, but whether they were nearby or far away was just a matter of assertiveness.
+''What on earth just happened?'' Ryūji wondered, blinking his ferocious eyes. In truth, he was so terrified he couldn't catch his breath.
 
-"It’s fine, fine! I can do this much by myself at least! It’s not like I’m that weak, you know!"
+As the duty student in charge, he had to leave the classroom to take care of some stuff, so it wasn't until some time after school that he was able to return. Normally, there wouldn't be anyone left in the classroom by then, but what he saw...
 
-So without asking anyone for help, Ami exclaimed ‘Yoisho!’ and lifted her desk with her slender arms.
+There was no doubt about it, he saw a girl in a uniform there just a moment ago. Perhaps spotting Ryūji entering, she quickly hurled herself into the dark corner of the classroom cabinet and hid herself there. At the same time, Ryūji also saw the chairs being kicked into the air and crashing with a loud noise. Despite this, he could still see that person very clearly right now, since there was a mirror at the top corner of the classroom, which completely reflected her back and head of hair.
 
-"Ah, watch out!"
+Incredibly, that clumsy fellow tried to hide her arms and legs by squatting there quietly. She apparently did not notice the mirror above her, as she even stuck her neck out to check out Ryūji's whereabouts.
 
-"Kawashima-san, let us help!"
+''Gulp!'' Ryūji swallowed and pretended that he didn't see anything. This was because of that tiny fellow... The one with the nickname Palmtop Tiger. Just seeing her back's reflection on the mirror was enough to tell who she was. That long hair and pale white face... Besides, for someone this small, the only person Ryūji could think of was Aisaka. She was probably moaning ''Why'd he have to appear now!?''
 
-"I said it’s fine, so stop worrying!"
+As a result, Ryūji decided that he saw nothing, heard nothing, and knew nothing at all.
 
-Weaving through the crowd of guys wanting to lend a hand, she quickly moved on her own,
+After making that decision, Ryūji decided to enter the classroom. Though he didn't want to enter a place where (for whatever reason) the Palmtop Tiger was hiding, he had left his bag inside and couldn't leave without it.
 
-"…See!  Didn’t I tell you?  This much is no problem."
+The sunset-filled classroom was silent, it was as if Aisaka were a spider weaving her web, or setting up a powerful forcefield, which upon entering caused one to feel the strain in all his bones. Ryūji cautiously walked slowly, trying very hard to walk at a pace as though nothing had happened, trying not to excite Aisaka and trying not to react as though he knew she was there...
 
-Having placed her desk and chair in the designated spot, she smiled a happily angelic smile. With that turn of events the boys quickly lost their pretense for talking with her. They left reluctantly while calmly saying, "If anything comes up, we’ll help you!", and were replaced by some girls who approached Ami.
+"Ah..."
 
-"Ehh, Kawashima-san, you moved this by yourself? You could have just asked the guys to do it."
+One moment of carelessness and the whole classroom was filled by the nervous shout.
 
-"That’s right, that’s right, or more like, I get the feeling that all those guys desperately wanted to talk with Kawashima-san. They’d be happy if you made use of them, I’m sure."
+The object that rolled out threw all of Ryūji's efforts out the window. By rolling herself up tightly, Aisaka Taiga had lost her balance and rolled all the way out from the corner of the cabinet. Unfortunately for her, she stopped right in front of Ryūji. 
 
-Facing the girls with an even brighter smile than the one she had shown the boys, Ami waved her hands in front of her face playfully.
+"..."
 
-"It’s fine~, since something like this is easy!...Or so I said but, just between us, I’m actually the type that ends up getting really nervous when talking with boys."
+"..."
 
-"Eh, really?"
+Aisaka looked up, while Ryūji looked down. This was no longer a distance where one could pretend nothing had happened. Both exchanged wordless glances for a few seconds...
 
-"Really. More than that, thanks for coming to talk with me! This is the first time girls have come to talk to me, I’m so happy! It’s fine if you just call me Ami, you know!"
+"Are you... okay?"
 
-After politely saying those kinds of things, she was about to sit in her seat when,
+Ryūji managed to squeeze these words out of his throat. He hesitatingly tried to stretch his arm out to Aisaka, who was trying to get up, but all he got in response was a few inaudible words, something like "I don't need your help" or "mind your own business." Aisaka's piercing glance shot at Ryūji through her bangs.
 
-"O-ow!"
+Ryūji couldn't help but back off, giving Aisaka enough space to get up totteringly. She lowered her head as she patted the dust off her skirt and kept her distance from Ryūji, with her back towards the window and her piercing eyes fixed on her prey. It didn't seem like she intended to leave the classroom. ''Shouldn't she feel embarrassed?'' Perhaps this type of thinking did not apply to the Palmtop Tiger.
 
-She banged her shin against the leg of her desk. With her face contorted, almost to the point of being comical, Ami appeared to be in serious pain.
+If Aisaka was to remain in this classroom, then it was all the more reason for Ryūji to leave as quickly as possible.
 
-"Ahh, geez! How uncool! Even though I wanted to go with a fashionably styled image since I took the trouble to transfer here. I guess I’m just the laughable type after all~!"
+"Ah yeah, the bag..."
 
-In response to Ami's self-deprecating style of speech, the girls spoke up as they laughed.
+As if deliberately letting Aisaka hear that, Ryūji rushed to get his bag.
 
-"Kawashima-san…I mean, Ami-chan, could you actually be a real klutz?"
+Aisaka Taiga continued to stand by the window while silently watching Ryūji. Ryūji had no idea what her expression was, since he was afraid to look at her. In any case, he walked as silently as possible in order to reduce his presence. As Ryūji traversed the classroom, his face shuddered as it was stared at by Aisaka's eyes. ''I must not react. I must not provoke her. I just need to walk casually...''
 
-"Somehow, it just seems so natural! Geez, even though you’re fortunate enough to be cute, why are you making such a funny face?"
+His bag wasn't on his desk though. He remembered that he had been speaking to Kitamura while on the way out, and had placed his bag on Kitamura's desk. Once he retrieved that, all he had to do was leave the classroom. Suppressing his anxiety, he slowly approached his bag, 20cm left, 10cm...
 
-"Don’t say it’s funny or anything like that~! I really planned on being fashionably cool~!"
+'''"AH!"'''
 
-Hahahahaha~---It went something like that.
+...He jumped up.
 
-Meanwhile, resting his chin on his hands as he sat near the window, Ryūji silently stared at the circle of excitement centered around Ami.  Missing their usual glint, his eyes were unusually empty as he wondered, ''So she can also put on this kind of act?''. For some reason he had managed to become a little distrustful of girls.
+''What happened?''
 
-As he pondered about that, he accidentally ended up meeting Ami’s gaze.  While uttering an ‘Ah’ from her partially open mouth, Ami blinked her large eyes as if surprised.  Ryūji wondered if she had really just now realized that he was in the very same classroom without even noticing Taiga.  Ami pointed a slim finger at Ryūji,
+''Does Aisaka Taiga intend to stop me?'' Ryūji turned his head in trepidation and looked at the little doll standing by the window.
 
-"Ehh, no way!  Isn’t that Takasu-kun?"
+"W, what is it?"
 
-"…"
+"...W...What. Are. You. Doing?"
 
-It was completely on reflex.
+Something unbelievable had happened here... the Palmtop Tiger suddenly looked anguished to the point of fainting.
 
-Reflexively, he ended up turning his face away as if he hadn’t heard anything.  It looked exactly as if he was turning away from something unpleasant.  Though it was only for a moment, he wondered if he had left an excessively bad impression …but he didn’t have the confidence to look at Ami again.  So as he maintained his forced inattention, Ryūji could only listen as the girls continued their busy conversation.
+"...I, I'm just here to get my bag, and... Ai, Aisaka? What's wrong? You've looked strange for some time now."
 
-"Ami-chan, you’re acquainted with Ryūji Takasu?!  How?!"
+Her tiny cherry lips opened and closed, while she paced backwards and forwards as though she was dancing some strange dance, while her fingers quivered before her face.
 
-"Well, when I went to a family restaurant with Yūsaku, we met by chance and were introduced, but…for some reason, it seems like I might be disliked?  Just look, I’m being snubbed right now…"
+"Y, y, y, you said, your bag? But isn't your desk over there? W, w, w, why, why is it t, t, t, t, there?"
 
-She might have intended to be discreet, but Ami’s voice easily made it all the way to Ryūji’s ears.  No, perhaps she was intentionally letting him hear her…For Ami to do something like that, he probably shouldn’t be the least bit surprised.  
+She was stuttering while admonishing Ryūji.
 
-"Ehh, about Takasu, he’s just an asocial guy, so it’s not like he hates you or anything.  I’m sure he’s just being shy."
+"...Why is it there? I was speaking to Kitamura when I got called out by the teacher...so I just placed it there... WHOA!"
 
-"That’s right, before we became classmates, we all definitely thought he was a major delinquent and were too scared to go near him because of his constantly scary expression, you know."
+Aisaka, who was supposed to be standing a few meters away, had shortened the distance between them in an instant and appeared before his face. Just where did she get such amazing mobility with such a small body?
 
----'He seemed bad because of his unsociable demeanor.'  Ryūji just stared out the window, but privately, that really hurt his feelings.
+"...! ...! ...!"
 
-"So Takasu-kun's not really bad or anything?"
+"Wait, h, hold it!? Ai, Ai...saka?!"
 
-"He’s just kind of different.  The first years and other students from other classes seem like they’re still scared of him, but Ami-chan doesn’t need to worry about any of that!"
+With great strength she grabbed at Ryūji's bag, which he clutched to his chest, trying to pry it away from him.
 
-"Yep yep!"
+"J, just lend it to me...! Let go!"
 
-"Ehh…So that’s how it is…"
+At such a close distance, Ryūji could see that Aisaka's face was redder than the sunset outside. Her cute face was distorted like a demon, and her expression was terrifying.
 
-Fu~n…He could feel an appraising glance on the back of his neck.  Like an unbearable itch, the sound of their voices brushed against his neck. He became unable to pretend he wasn’t listening, though it was for just a moment.  He was shifting his back against the itch when he ended up inadvertently looking at Ami.
+"Lend it... to you?! Stop fooling around...!"
 
-Thereafter---Ami smiled faintly.  Agitated, Ryūji’s expression took on a gleam like that of a sharp knife.
+"Umph~!"
 
-While they had certainly only connected for a moment, Ami’s eyes were apparently moist.
+He couldn't push her off, so Ryūji decided to hold his ground by standing firm, since if he let go now, Aisaka's little body would fly off quite far.
 
-Immediately facing the girls with a smile, she went right back to their group, but…somehow she seemed to be embedded with an unspeakable sadness.  As if it had been burned into his retina, he couldn’t erase the image from his memory.  Rather than anger or bitterness, the expression of anxiety as she looked at him vividly remained for some time.  Still amidst the group of cheery people, Ami’s eyes were cast with a dull light like the reflection off a still pool of water.  Looking exactly as if she was secretly tearing up, he got the feeling he could hear her voicelessly speak.  ‘Hey, why are you being so cold to me…?’
+So much for being considerate of her.
 
-"…N, no, that wasn’t my intention…it really wasn’t."
+"Uuuuuuuummmph~!"
 
-Shaking his head vigorously, Ryūji erased the afterimage from his head.  It wasn’t like that, it wasn’t, it probably wasn’t.
+Aisaka twisted her hips and grabbed the bag with both arms, the eyes on her red face now shut tightly, while the veins on her forehead were beginning to show. She was trying to win this by sheer brute force.
 
-Even though he should know how dreadful her beauty was, having already witnessed her true character yesterday, he was on the verge of being tricked by her chastely beautiful façade.
+Finger by finger, Ryūji was slowly losing his grip on his bag. Even his feet, which he had anchored onto the ground, were beginning to get dragged. To put it bluntly, he was close to losing.
 
-Pulling himself together and standing up, he went over to Kitamura’s desk.  As it was, he couldn’t even be sure that what he remembered of yesterday’s events wasn’t just a dream...He could easily believe that.  He needed to talk with someone else who had also witnessed what happened.
+"H, hey, that's dangerous... Let, go, now!"
 
-"Hey, Kitamura…Isn’t that remarkable?"
+"Uuuuuuuuuummmph... Ah...? Ahhhh..."
 
-When Ryūji indicated Ami and the others with a flick of his head as he spoke, Kitamura gave the rambunctious group a glance before sighing with a bitter smile.
+''I'm not gonna make it...!'' Just as Ryūji was thinking of that, he suddenly saw Aisaka look dizzy and fall backwards, her tiny hands spreading open towards the ground, letting go of his bag... ''She let go?!''
 
-"Ah.  As expected, she really knows how to get people’s sympathy, doesn’t she."
+"...AHHHH!!!"
 
-"…Why didn’t you tell me yesterday about the transfer?"
+"ACHOO!"
 
-"Hmm?  I didn’t?"
+''Crash!''
 
-"Don’t play around.  I was really surprised, seriously."
+The "...AHHHH!!!" belonged to Ryūji, the "ACHOO!" belonged to Aisaka, while the crashing sound was Ryūji again. They were, respectively, Ryūji screaming in terror, Aisaka sneezing, and Ryūji knocking his head on something.
 
-Leaning against Kitamura’s desk, Ryūji reprimanded his best friend in a quiet voice.  His eyes were extremely intense as he glared at Kitamura, but of course, Kitamura was aware that Ryūji wasn’t doing it on purpose.  Kitamura lightly scratched his head and laughed,
+As Aisaka had released her hands when she suddenly sneezed, Ryūji naturally lost his balance and fell backwards. He held on tight to his bag as he fell and knocked his head on the teacher's desk.
 
-"My bad, sorry.  How should I put this…I’m hoping that Ami will get along with people properly while remaining her natural self.  So, when we met yesterday, I opted to not mention that you guys would be attending the same high school.  I knew that if I had, she would have put on a complete front and then become immediately deceptive."
+"Owwww... That hurts! Y, you... Just what the hell were you doing... That h]]]urt, you know? ... I could've been killed!"
 
-"…Isn’t that just what she did yesterday anyway."
+He protested, teary-eyed.
 
-"She showed her actual nature to Aisaka at least.  And so Ryūji, you saw it too.  Right?"
+"Ugh..."
 
-"Could you possibly want to expose Ami’s true personality?  She’ll just be despised for it."
+Aisaka made a strange sneezing noise, ignoring what was going on around her. After causing Ryūji to lose his balance, she sniffed and then collapsed in the aisle between the desks.
 
-"I don’t plan to spread it around, of course. I have no right to do that after all.  But, I hope that it eventually gets out.  It will surely be better than the deception, for Ami as well.---If she is despised as a result of it, maybe it’ll convince her."
+"Ai, Aisaka?! Hey, you alright?"
 
-"…Convince her, you say …I don’t really get what you mean."
+Her long hair was lying on the floor, her tiny body curled up, and she moaned silently. There was no response. ''Could she be feeling unwell?'' Ryūji rubbed the back of his head while running towards her to get a closer look. The face which had been bright red a short while ago was now devoid of color, her quivering lips were now as white as a piece of paper, while her forehead was sweating.
 
-"Is that so?  Hm, and I thought what I said was easy to understand..."
+"Whoa... You, you look pale! Are you anemic? Hey, grab my hand."
 
-Taking off his glasses and wiping them with a cloth, Kitamura gave Ryūji a glance with his unexpectedly large eyes.
+She was the same as Yasuko. This time he didn't hesitate and stretched out his hand...
 
-"I don’t hate Ami’s real self at all.  It’s all the deception that I want to end.  I think it’s best for people to just be themselves.  To tell you the truth, it makes me a little sad now when she greets me with that facade…About when she started modeling, she suddenly started doing that good girl act even to me…Anyway, I think it would be nice if more people would like Ami for who she really is.  That’s kind of what I meant."
+"...!"
 
-Looking into the eyes of this passionately idealistic and just man, Ryūji couldn’t reply for some reason.  Even though there was just one thing that he wanted to say.
+The hand Ryūji held out was slapped away by Aisaka's icy cold hand. Though she was shivering a lot, Aisaka still managed to get herself up by grabbing onto a desk.
 
-''It’s probably impossible.''  That’s all.
+"Ai, Aisaka! Are you alright?"
 
+Still no response. With every step she made, the desk she held onto would shake, while her long soft hair would flutter. Her tiny figure seemed intent on running away as quickly as possible. As she was sitting up a while ago, her skirt was slightly rolled up revealing her tiny and smooth thighs.
 
+"Wait, wouldn't it be better for you to head to the school clinic?"
 
-The automated juice vending machine was meant to be used only during afternoon recess, but it was fine as long as none of the stricter teachers noticed.  Especially with the second year classrooms being very close to the separate two-story building with the vending machines, students violated the rule all the time.
+While it sounded nosy, he couldn't just leave her alone, but right as he was about to follow...
 
-Soon after third period math ended, Ryūji left the classroom with some pocket change, intending to violate that very rule and get a drink.  He had some lukewarm tea he brought from home, but today had been unexpectedly stressful.  He needed to do at least this much to relax.
+"Stay away... Pighead!"
 
-In the separate building he quickly walked down the empty corridor before stopping in front of the three vending machines lined up side by side near the stair landing.  Should he get a can of coffee or soda; while stingily counting his change, it was time to make his selection.
+She told him in a fierce tone that sounded like she was being forced into a corner. Ryūji stopped his footsteps at once. ''If she still has the energy to yell, that means she's okay, right...?''
 
-"Excuse me!"
+"W, what a mess..."
 
-A white hand that suddenly appeared from the side was blocking Ryūji while putting coins into the machine.  Surprised by the interruption, he turned around,
+Ryūji, now alone, sighed exhaustedly.
 
-"…Oh…"
+Aisaka's footsteps in the corridor became softer and softer, while only the person who was called a pighead remained in the classroom.
 
-And was even more surprised.
+His head still hurting from that fall, he took a look at his bag, which, like that baby in the famous <span id="back_to_ooka">[[Toradora!:Volume1_Translator's Notes#The Ooka Tadasuke Case|Ooka Tadasuke case]]</span>, was nearly torn in half, and was now covered in Aisaka's scratch marks. The originally tidy desks and chairs were now totally messed up, this was just unacceptable.
 
-"Ehe, so the vending machines were in this kind of place, were they?"
+What a mess.
 
-An angelically innocent smile was blooming directly in front of him.
+The tables, Aisaka, all of it was a mess. What a troublesome fellow.
 
-The one sweetly smiling while looking at Ryūji was the source of his stress---Ami.
+Being sensitive to things like this, Ryūji began to tidy up the desks, all the while trying to make sense out of what had just happened. All in a supposedly empty classroom after school, Aisaka Taiga rolling out before him, his bag nearly being taken away, her sneezing, his head getting knocked, the girl's anemia... No, he just could not figure out what this was all about.
 
-Tilting her head while her eyes sparkled,
+"I'm no good with these kinds of puzzling things..."
 
-"I wonder what Takasu-kun planned to get.  Let me try to guess, hmm…How about this one?"
+Ryūji muttered and sighed to himself.
 
-Out of all the possible choices, she selected the nastiest looking energy drink and pointed at its picture with her pink-colored fingernail.
+It would be three more hours before Ryūji could really make sense of what just happened.
 
-"Eh?!...No…That…C, coffee, actually."
 
-After he replied in a shamefully nervous and excited tone of voice, Ami said ‘I see’, nodded once, and pushed the button for coffee.  Then she turned to Ryūji and presented him with the can that had rolled out noisily.
 
-"Here you go.  It’s my treat.  Actually, I saw Takasu-kun leave the classroom, and I followed you here."
 
-"Huh?  W, why?"
+<span style="font-size: 300%; border: "><center>* * *</center></span>
 
-As he was rigid and unable to understand just what was going on, the can was deftly placed into his hands.  Ami put some more coins in without replying to him,
 
-"I wonder which one I should get…Maybe this one?"
 
-After a bit of meandering, she pushed the button for straight tea.  The sound of the falling can brought him back to reality, but it was already too late,
 
-"Ah, wait a second!  Here, buy it with this!"
+''To Kitamura Yūsaku-kun, From Aisaka Taiga''
 
-He hurriedly tried to give her his change, but Ami had already put her money into the machine a while ago.  Then, looking up.
+"T, this is... AH...!"
 
-"Well, I bought it already."
+7pm. As Yasuko had to go to work with her colleagues that night, she had left earlier than usual. After making dinner for one person, Ryūji finally made some sense of that mysterious event after school.
 
-Sticking her tongue out a little, she shrugged while making a mischievous expression.
+It was when he returned to his four-and-a-half <span class="plainlinks">[http://en.wikipedia.org/wiki/tatami tatami-matted]</span> room to begin doing his homework and opened his bag to take out his books that he noticed that thing...
 
-"No, that’s no good.  This just isn’t right.  Take this coffee instead then."
+It was a light pink envelope. ''Is that the kind of paper they call <span class="plainlinks">[http://en.wikipedia.org/wiki/Washi washi]</span>?'' There were lots of silvery cherry blossom patterns all over the semi-transparent paper.
 
-"No way, it’s fine, it’s fine!  Think of this as an apology for yesterday."
+The front of the envelope read: "To Kitamura-kun"
 
-"Apology, you say…"
+While the back read: "From Aisaka Taiga. I spent a lot of time writing this. If this troubles you, please throw it away at once!"
 
-"Hey, why don’t we drink right here?"
+The words were written in a light-blue ink.
 
-With these words, Ami quickly pulled the tab on her can open, and without listening for Ryūji’s response, she took a sip of her illegally obtained drink.
+It didn't seem like an invitation to a duel, nor did it look like a class committee memo, and it definitely was no I.O.U. note.
 
-With things as they were, he expectedly couldn’t just leave her behind when it was her first day after transferring.
+"C, could this be... a love letter...!?"
 
-"…Buying a drink when it’s not afternoon recess, that’s a violation of school rules."
+This was very unexpected.
 
-"Is that so?  But, I don’t want to be told that by Takasu-kun, since the one who came to do so was Takasu-kun."
+Feeling curious, Ryūji squinted his fierce eyes, not because he was mad, but because he was feeling extremely distressed.
 
-"…I suppose that’s true.  Thanks…<span class="plainlinks">[http://en.wiktionary.org/wiki/itadakimasu Itadakimasu]</span>."
+To put it simply, the Palmtop Tiger had gotten the wrong bag. Thinking this was Kitamura's bag, she had quietly stuffed the envelope in. It also explained why she was trying so hard to snatch the bag away from him.
 
-Ryūji couldn’t do anything but start drinking his coffee with her.  While the two of them were drinking, it became quiet except for the low hum of the vending machines, which resounded with a hint of melancholy.  Trying to hide his discomfort, he gave Ami a sidelong glance but couldn’t get himself to speak first.  He just couldn’t figure out what he should talk about.  So of course at a time like this, no other students or strict teachers showed up.
+"... This, you stuck it in my bag by mistake, right? I didn't read any of the contents inside, so I don't know what it's saying. So you can have it back..."
 
-"Whew…It’s cold.  It’s really good when it’s chilled."
+Ryūji began to practice how to feign ignorance when returning the letter.
 
-Wiping her wet lips with the end of her finger, the one who started speaking was Ami.  Side by side with Ryūji, she leaned against one of the vending machines,
+"That's just impossible!"
 
-"That aside, I was pretty surprised to find out I'm in the same class as Takasu-kun.  Even Aisaka’s there…Yūsaku, he didn’t say anything at all about that yesterday."
+But it only lasted a moment. ''I can't do this, it's just too difficult. I can no longer just say that I don't know anything! But I can't think of anything better. That does it, I'm just gonna have to return this nonchalantly to Aisaka as though nothing happened! That's all I can do.''
 
-She smiled amiably as if saying ‘Right?’.  But Ryūji, while vaguely nodding, could only return a stiff facial expression.  Of course his eyes also ended up becoming more wild.  Even setting aside Ami’s actual personality, he was suddenly alone with an extremely pretty girl that he wasn’t all that familiar with, which made him feel constricted.
+''Although it is a love letter, maybe she doesn't know that I know it's one, so I don't have to say anything specific and make things even more complicated. Though it's quite impossible, there's no other way out of this. In order to avoid embarrassing Aisaka, hurting her pride and causing her to hate herself, this is the only way.''
 
-However, Ryūji wasn’t sure how Ami perceived his response.
+Ryūji forced himself to accept this train of thought and prepared to stick that dangerous object back inside the bag, then something unexpected happened...
 
-"…Hey, Takasu-kun."
+"...Eh..."
 
-She moved from his side and stood directly in front of him.  With her gently shining eyes discreetly raised and her eyelashes weakly trembling, she whispered roughly.
+His heart suddenly stopped for a while.
 
-"…By any chance, I wonder if you heard anything from Aisaka-san…Even though there isn’t really anything I can do if you were told…But, you know.  I hope you’ll just forget about yesterday.  This is…also for Aisaka-san’s sake."
+In order not to mess up the envelope, Ryūji carefully placed it on his palm, yet it suddenly opened on its own. ''NO! Don't open!'' Though he yelled in the bottom of his heart, the seal on the envelope, which was already quite loose, still popped open due to the pressure exerted by its own weight, causing Ryūji to lose his breath momentarily.
 
-"Y,…Yesterday you say, what do you mean?"
+And so, a criminal that selfishly opens letters meant for other people was born.
 
-Nervous from being face to face, Ryūji took a step back wanting to desperately escape, but his back was met with resistance from the vending machines.  Ami made such an effort futile anyway by moving forward a half step.  She wasn’t fazed at all by his bad expression.  So what she meant about yesterday was, ‘the family restaurant’, ‘the slap in the face’, and ‘the breaking down and crying’;  it was probably about those three points---
+"No, no.... NO! But I didn't see anything inside! That's right! I gotta glue it back...! Then no one will find out!"
 
-"I’m wondering… did Takasu-kun hear from Aisaka-san about what happened?"
+''That's right!'' Inko-chan parroted from the living room. Ryūji frantically looked for the glue inside his drawer. Finally finding the glue, Ryūji was about to glue the envelope back without any trace when...
 
-Ami’s searching eyes, which somehow sparkled reminiscently of that Chihuahua from the commercials, were clouding over and even now looked as if they might start shedding tears at any second.  He was desperately trying to come up with the best possible answer with a mind that had gone totally blank while continuing to look away from Ami’s sad pretty face. 
+"...Eh, ehhh~?"
 
-"N, no…I didn’t hear anything."
+Ryūji was so surprised that he stopped what he was doing.
 
-He muttered it sincerely since it was technically true.  The fickle angel holding her hands out in front of him was the liar.  Though he justified himself thusly, the answer he replied with wasn’t actually a lie anyway.  He had seen it all with his own eyes, so he didn’t need Taiga to tell him anything.
+There was no letter inside the long envelope. After hesitating for a while, he reopened the envelope again, took a peek inside, and made sure by shining light through the semi-transparent envelope... There was nothing inside.
 
-"…Really?  I was so sure that you had…but maybe I was mistaken.  If that’s the case, I still want to say some things…About yesterday, it was totally my fault.  Aisaka-san didn’t do anything bad at all."
+''... What... the... hell!?''
 
-Her Chihuahua-like teary eyes were sparkling as she gently blinked.
+Ryūji fell face flat on his table. ''The hell? Seriously, quit fooling around already! ... She sure is hopeless!''
 
-"Hey maybe, that…I, I think that maybe because I seem kind of air-headed that I was making Aisaka-san irritated…Aisaka-san, when we were talking, she’d suddenly become really emotional and said all sorts of things that I didn’t really understand, like ‘conceited’ and ‘getting caught up in the moment’…I ended up panicking.  Like ‘Eh?  Eh?  Why?’, just that sort of thing…so…"
+''Aisaka Taiga, you really are an idiot!''
 
-What nerve, to make that kind of expression as she told such a story suited for her own benefit---Feeling that minor chill again, he gave a small sigh of near amazement.  Interrupting him,
+''Hiding in a place where I can see you, rolling out right in front of me, getting the wrong bag, wasting energy trying to grab that bag, sneezing, fainting... All this just to retrieve an envelope that is empty... There's a limit to being stupid!''
 
-"…So!  Aisaka-san didn’t do anything wrong."
+After coming to his senses, Ryūji went back to foolishly trying to glue back the empty envelope, since he was already feeling dejected.
 
-Ami shook her head.  Her Chihuahua-like eyes were shining even more and more,
+''I wonder if I can still pretend that nothing has happened when I return this to Aisaka tomorrow?'' Once he realized how stupid the whole thing was, Ryūji prayed that he wouldn't laugh out loud at that time, as he might just get eaten alive by the Palmtop Tiger.
 
-"I…If I was more…If only I was a more level-headed person…So, I want you to forget about it.  That…The truth is…Really you know, girls saying weird things all of a sudden like that, it’s…normal…So!  I’m not going to worry about that kind of thing!  It’s fine!  I’ll keep trying my best!"
+In any case, the matter should be settled by now.
 
-I’m the victim!---Ami was pleading that with her entire self when the bell started ringing.  Speechlessly watching Ami’s theatrical display, Ryūji felt like he had been saved.
+As the incredible night became darker...
 
-"T, that’s the bell.  We have to get back to the classroom…Come on, finish your drink.  I understand what Kawashima wanted to say."
 
-Haa, he certainly understood.  In other words, Ami had come all that way to make excuses for herself and to keep him from talking.
 
-As if swallowing his uncertainty, Ryūji drank the rest of his coffee in one go.  He momentarily narrowed his eyes intently at Ami’s somewhat satisfied looking smile.
 
-"We have to hurry or we’ll be late for class!"
 
-With a couple gulps, she similarly drank what was left of her iced tea in one go.  After disposing of the empty cans in a trashcan, they took off down the corridor side by side.
+2am.
 
-"…Hey, Takasu-kun.  You’ll promise me now, right?  That you won’t say anything about this to anyone, right?  That is---I’m really sorry that I ended up crying yesterday."
+Ryūji suddenly woke up and opened his eyes drowsily.
 
-Ami’s teary Chihuahua-like eyes were searching for reassurance.  Ryūji deceptively nodded any number of times,
+He seemed to have dreamt of something... After taking a look at his clock, he scratched his stomach and wondered. He used to be able to sleep all the way till morning, so why did he wake up halfway tonight? Ryūji had no idea.
 
-"I get it…I get it already.  C, come on, hurry up."
+Could it be because he was only wearing his T-shirt and boxers? Ryūji shivered even though it was already the middle of April... Maybe it had something to do with him sleeping with the window open? As the Bourgeoisie-style apartment block was just opposite the window, security for the house had become quite lax. Though he reckoned there was nothing in the house worth stealing, Ryūji still closed the window and made sure it was locked.
 
-Shaking off the sudden onset of fatigue, Ryūji moved forward and continued to run in front of Ami.  Because of that, he wasn’t able to see it.  Ami, who was running behind him, gave a small laugh as if to say, ‘This guy, he's such a simpleton'.  
+After getting out of his bed (which he bought himself), feeling uneasy, Ryūji gave a weak yawn. Was it a bad dream? His heart was beating rapidly... as though someone was watching him... he felt a strange atmosphere he couldn't quite describe.
 
-However, even if he had noticed, it’s not like he would have been at all surprised by it.
+"... Calm down..."
 
+Walking wobbly on the tatami, he wondered if something had happened at Yasuko's work place. He checked the phone display, but there were no calls from the bar. ''Maybe I'm thinking too much.'' Ryūji sighed, ''Since I'm out of bed, I might as well go to the bathroom.'' So he began to walk barefooted on the wooden tiles of the kitchen towards the bathroom.
 
+At that moment...
 
+"...WHOA...!?"
 
+He felt a cool swishing sound near his neck. As he instinctively tried to turn around, his foot landed on a newspaper lying on the ground and he fell beautifully backwards. ''Thud!'' He landed on his backside, causing a tremor to go from his hips all the way to his head and causing him to lose his breath for a moment.
 
-[Why did you get back to the classroom at the last second with Ami Kawashima?]
+"......!"
 
-It came as the teacher had her back turned since she was writing on the blackboard.
+He could not even scream as a result.
 
-A scrap of paper that someone else had recklessly thrown onto Ryūji’s desk had those words written in pink ink.  There wasn’t a name on it, but he could recognize the neurotic handwriting.  
+With great intensity, something had just slashed through where Ryūji's head was just a moment before. After missing Ryūji, the object hit onto something by Ryūji's side and made a loud and terrifying smashing sound.
 
-He knew he was right when he looked towards the center seats.  Looking visibly displeased with her mouth in the shape of an upside down V, Taiga was looking right at him.  With cold forsaking eyes Taiga whispered, arrogantly mouthing ‘Reply’.
+"...Uuu..."
 
-Did he really have any obligation to reply or anything---He wasn’t sure how he should write about what just happened, and to begin with, he certainly didn’t want to get dragged into their little quarrel.  He pocketed the piece of paper in a way that Taiga could see him do it and pulled the textbook he had out closer to himself.  Like that, he planned to show her that he wasn’t going to be replying.
+Within the dark two-room one-kitchen apartment stood a suspicious silhouette. That person once again raised up the stick-like object and went straight for Ryūji... Ryūji was being attacked!
 
-However, in his peripheral view, Taiga was making an underhanded throwing motion…
+''But, why!? Is this a dream? Somebody help!''
 
-“…Ah!”
+Ryūji rolled along the floor silently. ''Should I turn on the lights? Or call the cops? Or the landlady?'' His mind was blank, he could not think of what to do, and his body was so stiff that all he could do was dodge the attacks and try and crawl towards the entrance, but...
 
-…By the time he noticed, it was too late.  Well, it was late, but he was still saved.
+"UWAAAAAAA!"
 
-Coincidentally, he had been scratching his head while holding a leather-bound pencase in hand.  It was sudden---the pencase was pierced easily by a mechanical pencil dart.  Really, it could easily have been the center of his forehead that was pierced.  The four students who unfortunately happened to be sitting between Ryūji and Taiga were all equally surprised, wearing stiff expressions as they looked for the shot that had just missed them.
+He was about to get hit! The weapon was aimed directly at his head! Out of reflex, Ryūji stuck both his hands out and tried to stop it...
 
-“Wh…What the heck was that…”
+"Ah... I, I actually caught it...!"
 
-''She intends to kill.  This girl, she really wants to kill me.''  Going ‘Che, how disappointing’, Taiga nevertheless kept a calm face…she snapped her fingers while making that cold and apathetic expression.  
+He couldn't believe he was able to catch it, though he only caught it due to luck.
 
-Staring at Taiga with rabid-looking eyes, Ryūji swore resolutely in his heart that he absolutely wouldn’t reply.  Just who was the one with the bad split personality; if you tried asking Ryūji, he wouldn’t be able to say for sure.  They were just about equally troublesome.
+"...Ugh...!"
 
-He caught a glimpse of Taiga mouthing her complaints, but he had no desire to get involved with her.  First of all, if he went ahead and relayed what Ami had told him moments ago to Taiga, it was obvious that he’d just be adding fuel to their already treacherous dispute.
+As the weapon was caught, the intruder tried to push through with brute force. Ryūji also gave everything without holding back. The two forces silently pushed against each other as their shadows fluttered in the darkness. Then he distinguished a small figure and what seemed to be long hair over the figure... ''It can't be!?'' Ryūji appeared to grasp the identity of the intruder; in fact, he had already noticed it from the beginning.
 
-Deciding that he would try to completely ignore the situation, he casually started building a barrier around his desk with his textbooks and notebooks.  He planned to use them as a defense against that violent girl’s troublesome attacks.
+Gritting his teeth while holding back, Ryūji came to a conclusion. ''It has to be! Who else besides that fellow could do something this messed up!?''
 
-However, a few minutes passed.  Again while the teacher’s back was turned, a folded piece of paper was thrown onto his desk by someone in front of him.  Thinking it might be Taiga again, he was just about to throw it away, but,
+But just as he was about to verify the identity of the intruder... ''Ahh! I'm not gonna make it!'' His trembling arms were about to give in, even his hard neck was near its limit. ''I'm gonna die...''
 
-"…Oh…"
+"...Heh...AHH..."
 
-TO: Takasu-kun
+''ACHOO!''
 
-FROM: Minori
+The balance was broken in an instant!
 
----He ended up seeing those words, and something akin to a sigh escaped from his throat.  When he looked to the opposite side of the classroom, he even saw Minori going ‘He~y’ while looking his way and waving her small hand from her seat near the hallway.
+As the strange sneezing noise was made, the incredible pressure suddenly disappeared, yielding to the force that Ryūji still exerted. The intruder was pushed back while crying out softly, "Ah, wah!" before wobbling backwards and falling softly onto the bed. Ryūji quickly stood up and turned on the lights...
 
-Frantically waving back silently, Ryūji gingerly opened the note with trembling fingers.  He didn’t want to rip it…and he didn’t want to get it dirty…After all, this was the first time in his entire life that he had received a letter from the girl he liked.  It may have just been a small scrap of paper, but even so, this was the treasure of a lifetime for him.  Even when he becomes an old man, he was absolutely certain he wouldn’t forget this day and this moment in time.
+"Aisaka!"
 
-However.
+"..."
 
-[Now look here, Takasu-kun!  Minori is seriously angry you know!]
+"Use a tissue, dammit!"
 
-''What’s with this beginning paragraph…?'' Ryūji swallowed with a bitter taste in his mouth.
+Ryūji tossed a tissue box towards the Palmtop Tiger, Aisaka Taiga, who was rubbing her nose with her dress as though nothing had happened.
 
-[I heard from Taiga; isn’t Takasu-kun being kind of suspicious with that transfer student?!  I already told you before on the rooftop you know, that if you toss Taiga aside …I’ll punish you~! [[Image:Toradora_vol02_skull.png]]]
 
-…That’s how the first half went.
 
-There was actually a skull mark on the very first letter he was fortunate enough to receive from the girl he liked.  He continued on to read the latter half as he tried to stifle his incredulity.
 
-[I’m just saying this in case, you know; that transfer student is certainly a very cute girl.  But you know, things that are perfect, they’re not really interesting, right?  As proof, my ever-insatiable Minorin Radar (my detector for sweet girls), it’s not responding this time even a bit.] 
+<span style="font-size: 300%; border: "><center>* * *</center></span>
 
-Well, that’s probably not the problem…Ami Kawashima is interesting…in a way… Rather than that…that bothersome Taiga had tattled to Kushieda.  So she’s not only violent but a coward as well.  He glanced sideways at Taiga, but she was giving him the cold shoulder, facing the other way and completely ignoring him.  Her back was giving off a thick violent aura that said ‘You’re the one at fault, you know’.
 
-Chewing his lips that were dry with an inexpressible anger, Ryūji still used a steady hand to tear a perfect square of paper from one of his notebooks.  He’d make his objection to Taiga later, but for now anyway, he needed to reply to Minori. 
 
-To Kushieda
 
-From Takasu
+Her long hair fluttered on her back. She was wearing a loose one-piece dress, separated into many layers via soft laces. This was definitely an appropriate outfit for her small figure...
 
-[There isn't anything suspicious going on between me and the transfer student, but before that, there’s nothing between me and Taiga either.]
+"G, give me that wooden sword..."
 
-He wrote that much with carefully arranged letters, then thought a bit,
+Ryūji regretted not confiscating Aisaka Taiga's weapon a while ago...
 
-[Anyway, excuse me for completely changing the subject.  What does Kushieda think about people who label themselves naturally air-headed?]
+He could have taken it when he turned on the lights, he could have taken it while handing her the tissue, in the end, the crisis still remained unresolved. Aisaka's eyes glittered like a tiger spotting it's prey, and began circling around the narrow room. Of course, Ryūji also kept his distance from her, circling around the room in his boxers.
 
-…He tried to pad it a little like that.  For some reason, he wanted to try asking her that question.  Also, it seemed like she might get a little angry if he just wrote one sentence the first time, and it didn’t even seem very well put.  In an email conversation, putting in questions would invariably help keep things going well.  But this wasn’t email.
+''This can't go on forever.'' As he thought of that...
 
-Aggressively hiding the throbbing feeling that was nearly bursting from him, Ryūji passed his return note to the guy in the seat in front of him.  Each time the teacher wrote on the blackboard or glanced at the textbook, his note made its way to Minori bit by bit---Soon enough a few minutes later, it arrived safely into her hands.
+"Aisaka... I know what you're thinking, you want me to return that love... letter, right? The letter that you placed in my bag by mistake."
 
-[[Image:Toradora vol02 087.jpg|thumb]]
+"...!"
 
-He was staring as she opened up his note, worrying futilely and wondering what in the world she was thinking when Minori slowly turned to face Ryūji and stood up.  The teacher had her back turned and was in the middle of writing a bunch of things on the board, but Ryūji, Taiga, Kitamura, Ami, and pretty much all the other students had surprised looks on their faces and ended up staring almost involuntarily at the standing Minori.  
+Just after Ryūji got the courage to speak, at that instant, Aisaka, who was still silently prowling, suddenly grew very big in appearance... or so she appeared to be. She was like a bomb about to explode... with the trigger already ignited.
 
-Minori closed her eyes and, reminiscent of the crucified Christ, raised both hands so very slowly while wearing a peaceful expression.  Her expression that had been like that of a dead person very, very slowly shifted into a smile.  Her hands ended up making a large circle over her head…at least, that’s what it looked like at that moment.
+"I, I'll return the letter to you! So please calm down! I didn't read anything inside!"
 
-Kuwa~!
+"... Do you think you can get away just by returning it to me?!"
 
-With her face crinkled and her mouth opened as if she were crying out, both her hands crossed violently in a slashing motion.  They ended up forming an X.
+She growled in a deep tone as though she was about to leap up and attack,
 
-“Umm, and so…” 
+"Don't be ridiculous... Since you already know of the existence of that letter..."
 
-At the same time that the teacher turned around, Minori was already sitting in her seat acting as if nothing had happened.  It might have seemed as if a single giant question mark was looming collectively over the students’ heads.
+''Whoosh!'' The huge wooden blade elegantly swerved over Ryūji's head.
 
-That X was probably the answer to the latter half of his letter…Ryūji was puzzling over what just happened as well.  He just seriously hoped that she wasn’t making that X in regards to the first half.
+"PREPARE TO DIE!"
 
-Then he thought.   You might call a person like her naturally air-headed.
+"WHOA!!!"
+
+[[Image:Toradora vol01 067.jpg|thumb]]
+
+She charged straight at Ryūji with her wooden blade aiming directly at Ryūji's head. ''How can she be so fast?'' From a few meters a moment ago, she had already reached Ryūji's chest, and had the wooden blade not missed and smashed the wall (''My deposit!''), Ryūji would have been killed.
+
+"Damn!"
+
+"Shit!"
+
+With tears in his eyes, Ryūji tried to escape from this place and yelled at the top of his lungs,
+
+"What kind of person would want to kill her own classmate?!"
+
+"Shut up! Since you already know about that letter, how do you expect me to continue showing my face around? Only death can save me from something this embarrassing!"
+
+She pointed the edge of her blade towards Ryūji's throat.
+
+"Hey! If death is the only way out, why am I the one that has to die!?"
+
+Ryūji instinctively and miraculously dodged the attack, but Aisaka's strength was too great and tore through the <span class="plainlinks">[http://en.wikipedia.org/wiki/fusuma fusuma]</span> (''I just refitted that!''). Without any sign of hesitation, her eyes read ''I'll kill you with all my might!''
+
+"I don't want to die yet, so I'll have to kill you instead! Sorry about that, so hurry up and die! If not, then erase all your memories of it!"
+
+"That's impossible!"
+
+"Of course it's possible, as long as I use this..."
+
+She looked at her shiny wooden blade,
+
+"All I need to do is just hit you on the head with this, it won't be enough to kill you, but it'll probably wipe out all of your memories!"
+
+"Don't go around erasing my memories on your own!"
+
+''How can she be so inconsiderate!? It's pointless trying to argue with her, we just cannot communicate. Common sense, ethics, consideration for other people, all these do not apply to Aisaka.''
+
+''Ahh! That was why I didn't want to have anything to do with her!''
+
+In contrast to Ryūji, who was nearly coughing up blood, Aisaka was busy wreaking havoc in the whole place. In order to attack Ryūji, who kept running away, she smashed the basket on top of the cupboard, poked a hole in the fusuma, and kicked the small table over while yelling,
+
+"Remove that love letter from your memories!"
+
+''Aren't you just admitting that you wrote that yourself, you Palmtop Tiger!? Nobody would have known that was a love letter if you hadn't said anything (since it can be ambiguously mentioned away). Great, now she's openly admitted it and made things even messier. No, from the moment I got involved with Aisaka, everything has been a mess, not to mention...''
+
+"You saw it, didn't you!? You saw it! You must think I'm an idiot... an... idiot... sniff, sniff, uuu..."
+
+"Wha!? Hey! Wait... are you... crying?"
+
+"No I'm not!"
+
+From her fierce howl one could sense a long suppressed sigh being released, the eyes that were aiming at Ryūji were now a little red and the corners looked a bit watery. Aisaka looked like she was crying a bit. ''But I should be the one that's crying... It'd be great if I could just cry without having to move around, but this is now a matter of life and death...''
+
+''Argh, dammit, just what the hell is this!? Why am I the one being attacked? It's as though I've done something bad.''
+
+Ryūji had had enough, he decided to put himself at the mercy of fate. After pretending to dodge around for a while, he determinedly grabbed Aisaka's wrist. At that moment, Ryūji felt that her hands were so small they could easily be twisted that he began to feel afraid again.
+
+"Let me go!"
+
+He had to take out his trump card now. At this point he slowly breathed in. ''I'm sorry, my neighbors! Forgive me, Mrs. Landlady!'' He then shouted with every ounce of his strength,
+
+"I won't let go! You listen to me, Aisaka! You've just made a terrible mistake! That envelope you stuffed in..."
+
+"Let... me... go..."
+
+After forcefully shaking off Ryūji's grip, she could now attack him at a very close distance! As Aisaka's eyes glittered with an intent to kill...
+
+"IT'S EMPTY!!!"
+
+Ryūji's yell came just in time.
+
+The wooden blade stopped just above Ryūji's head, very nearly razing through some of his hair. An awkward silence followed. After a few seconds, she finally squeezed out a few words,
+
+"... It's... empty...?"
+
+Her child-like voice asked Ryūji that, to which Ryūji nodded his head vigorously.
+
+"T, that's right, it's empty... that's why I said I didn't see anything inside, and, oh yeah, it's fortunate you didn't hand this to Kitamura. Do you have any idea you were this close to becoming a major laughing stock?"
+
+The watery eyes widened as Aisaka stood motionless. Taking this chance, Ryūji quickly crawled away from her and into his room on the other side of the fusuma. His hands trembling as he frantically tried to search for that envelope inside his bag.
+
+"Here! You see, you see?"
+
+With veins showing in his eyes, Ryūji stuffed the envelope into her tiny hands. Her wooden blade made a sound as it was dropped to the ground, she began to wobble, though she still supported herself by standing with her legs opened, and examined the envelope through the light.
+
+"... Ah..."
+
+Her little cherry lips opened slightly.
+
+"Ah, ah... Ahhh... AHHH! UWAAA!"
+
+With her hair in a mess, Aisaka fervently tore open the envelope and shook it upside down. After she confirmed that there was indeed nothing inside, she turned around at looked at Ryūji with a blank expression,
+
+"... I'm so hopeless..."
+
+After saying that, she slowly sat down on the floor. Her eyes, which were still wide open to the point of cracking, slowly closed. Her thin lips quivered softly, while her chin made a clicking noise.
+
+"Ai, Aisaka?"
+
+A compulsory shutdown...
+
+Sitting before Ryūji, her face became pale instantaneously and the tiny body that was wrapped up in the one-piece dress fell down sideways just like that in the living room of his two-room, one kitchen apartment.
+
+"Hey! Aisaka! Are you alright?"
+
+It all happened too suddenly, Ryūji quickly ran up and carried the unconscious doll in his arms.
+
+At that moment...
+
+
+
+''Grumble~ Grumble~''
+
+
+
+"Was that... her stomach... grumbling?"
 
 
 
@@ -490,143 +603,356 @@ Then he thought.   You might call a person like her naturally air-headed.
 
 
 
-Even though Ami is such a beautiful person, she wasn’t prideful at all, she was easy to talk to, and just an overall good person!
+At the Takasu residence, there was always food ready at any time.
 
-…The overall opinion of the class unified like that before the period even ended.
+The garlic and ginger were all cut beforehand, while onions were available all the time. A few turnips were added and finally some bacon and eggs. Of course, in order to make sure there was never a lack of seasonings, the kitchen always had plenty of chicken soup powder, spices, as well as chicken bone soup base.
 
-There were a lot of guys who were trying to help Ami on her first day, and so no matter who it was, she would gladly say ‘Will you teach me this?  Thanks!’, ‘Ah, so that’s how it is~!  I’m so glad, you really saved me~!’, ‘Eh~, I’m so happy that I could talk with everyone~!’…Slyly putting on such a convincing smile, she showered her affection indiscriminately with a shining aura like that of an overly pure angel.
+A bit of castor oil was added to the one and a half cups worth of rice, adding in some chopped turnips to give it a clearer taste. The rice was coated yellow as egg was mixed in, so all that was left was to add in the onion to sweeten it and the bacon to complete it. After including some additives - bit of pepper, salt and some oyster sauce - the last thing to do was to decorate it with the saved up cilantro.
 
-The three who were aware of Ami’s true nature were Kitamura, Ryūji, and also Taiga, but it seemed like Kitamura wasn’t going to be doing anything more than necessary, so Ryūji didn’t feel he had to waste his time going around telling everyone about Ami’s dual personality.  After all, he didn’t want to get mixed up in things any further than he was already.
+Together with the soup, which only required pouring hot water on top of some chopped onions and chicken soup base, the whole meal was complete in 15 minutes. There was even time to clean the dishes while the food cooked.
 
-Then Taiga,
+Though it was 3am, Ryūji's cooking was still flawless.
 
-"…Go get me something to drink."
+"G... garlic..."
 
-Looking angry and displeased, a trespasser was occupying the seat opposite Ryūji.
+''Grumble~......'' Ryūji could hear her sleep-talk within that ludicrous grumble. He wondered if he should give her a push...
 
-Partway into the lunch break, she had come to return the emptied bentou box, but it seems she intended to take the opportunity and make him fetch her a drink. 
+"...Ai, Aisaka Taiga, wake up! If you want garlic, it's here, with castor oil on top as well."
 
-"…Um, you know, haven’t I been constantly telling you to wash the bentou box before giving it back?"
+Ryūji softly shook the little figure that was sleeping on the bed.
 
-"Haven’t I kept telling you that the school sponges are old and disgusting?"
+"Fried... fried..."
 
-"And I told you that I keep some new sponges in my locker, didn’t I?"
+"Yes, it's fried rice!"
 
-"And I told you that it’s too troublesome, didn’t I?...Wait wait, it seems like something is bothering you."
+"Fried... rice..."
 
-He suddenly gave Taiga a sharp look,
+Drool began to drip down the edge of her pale lips. ''Since I saw it, I can't just leave it like that.'' Ryūji thought as he couldn't help but softly wipe her mouth with a tissue.
 
-"That reminds me…Just why did you say those weird things to Kushieda?"
+"Get up, or your rice is gonna get cold!"
 
-But he still handed over the bottle of tea that he had brought from home to Taiga.  She unscrewed the cap and poured some tea into it, using it as a makeshift cup.
+Aisaka's eyelashes shuddered for a bit. To avoid touching her, Ryūji tugged her down from the mattress by pulling on her dress. Aisaka even twitched a bit halfway as she reluctantly sat up.
 
-"You’re the one doing weird things.  Anyway, I didn’t even say anything.  I wrote it…Hey, where did you drink from?"
+"... Ah... Eh?"
 
-"…Umm, about on that mark."
+Looks like she's up. She gave a scowl and shoved Ryūji's hand away, while suspiciously removing the wet towel from her forehead. Slightly moving her nose, she said,
 
-"Even if it’s an accident, I really don’t want to drink from the same spot."
+"... What's that? That smell... it smells like garlic..."
 
-She squinted suspiciously at Ryūji, then,
+Her eyes rolled all over looking around.
 
-"…Namusan!"
+"Didn't I just say it's fried rice? Hurry up and eat, this'll get your blood glucose level up! Otherwise you're gonna faint again."
 
-Horribly exaggerating, she shut her eyes and brought the makeshift cup to her lips.  If it was that detestable, she could have just wiped it, but it seemed like instead of doing something like that, she would rather complain or just get angry. Anyway, they were already close enough that they shared food from the same plate.  They had probably already exchanged saliva some time before---But if he actually said that to her now, he’d probably be killed in less than three seconds.
+Ryūji pointed at the plate of fried rice placed on the short table. ''AH!'' Her eyes glittered for a moment, but...
 
-"Well then…what were we talking about again?  Oh yeah, didn’t you go off with Ami Kawashima somewhere?"
+"...Just what are you plotting...?"
 
-"Are you bringing that up again? You’re so persistent."
+She quickly squinted her eyes and scowled, staring straight through to Ryūji, who was now in his track suit.
 
-"Well, you didn’t answer me!"
+"Why would I want to plot anything? I guess the only thing around that can wake you up is that fried rice, isn't it? Your stomach was grumbling quite loudly, you know? You had the same anemic symptoms at school as well... Hey, don't tell me you never eat at all?"
 
-With an unusually agitated expression, Taiga cried out.
+"That's none of your business! Leave me alone! ... This apartment, do you live here alone?"
 
-"Awawawa…"
+"Well, there's my mom, though she's out working. And when trying to assault someone, at least get an idea of who's inside! If it were someone else, they would've called the cops already."
 
-She had ended up spilling some tea from the cup in her hand onto the desk.
+"Ah, shut up... You, you didn't do anything funny to me, did you?"
 
-"Ryūji, tissue!"
+Aisaka looked sternly while shielding her body with both her arms, her eyes squinting to a small line while examining Ryūji in a very provocative way. ''You're the one that's funny around here!'' Ryūji forced himself to swallow what he was about to say.
 
-"Geez, what are you doing, seriously…"
+"... You're least qualified to say such things, when you were the one who intruded into another person's apartment to ambush him, but fainted because of starvation! Alright, hurry up and eat!"
 
-Wiping the desk incredulously, Ryūji gave a long sigh.  First he took care of the area that had gotten wet, then he finished by giving the whole thing a final rundown.  After all, tea could be used as a cleaning agent.
+Despite all this, it was still three in the morning and it certainly wasn't the time to argue and disturb the neighbors.
 
-He was already used to being with Taiga, who was usually clumsy like this.  However---he still didn’t want to get involved with her quarrel with Ami.  He didn’t like her being irritated like this, but he had already colluded intricately with Ami during the recent passing period.
+"I don't... mmmmm!"
 
-"…Taiga, what was it that you were saying yesterday when we were preparing dinner?"
+Ryūji scooped a large spoonful of fried rice and forcefully stuffed it into Aisaka's mouth while she was still rambling away on his bed. This required a certain amount of courage, but Ryūji had already consigned himself to his fate, so he figured he might as well face whatever comes his way. For a while he certainly felt manly.
 
-"Eh?...The maguro tuna, cut it rea~lly thin, I said…"
+"W, what are you doing!?"
 
-"That’s not what I meant.  About Kawashima.  You said you wouldn’t waste your time getting involved with her, but you’d be able to forgive her once you were mature enough."
+Aisaka pushed the spoon away while her eyes glittered, but it didn't seem like she intended to spit out what was in her mouth. Her little face chewed on the food nonstop, looking very much like a squirrel.
 
-"Ah…I didn’t say that…No, wait, I lied, I did say that."
+"Mmm... mmm, d, don't think you can get away with this..."
 
-"I really think what you were saying is right.  It’s fine if you don’t make friends with her.  Just forget about what happened yesterday and never go near her again.  You can just keep living normally.  Just because you ended up seeing her again doesn’t mean you have to become irritated again, does it?  It’s not like she’s done anything to you…at least not today."
+''Gulp.'' She swallowed the food.
 
-"…Yeah…That’s right, but…Yes, that is right…"
+"...I'm not yet done with you!"
 
-Quietly moaning before falling silent, Taiga’s sharp look started to soften albeit only very slightly.  Maybe things would be okay like this.  Even if she is the commanding Palmtop Tiger, it doesn’t mean she should just go do whatever she wants and hate other people.  If she can live with a gentler heart, then there shouldn’t be any more of these incidents.
+She snatched the spoon which she had pushed away a minute ago from Ryūji's hand and continued,
 
-"Well then, let’s go wash our bentou boxes."
+"Most importantly, how did you know the envelope was empty?"
 
-"…Huh?  No way."
+She picked up her long dress as she slowly got out of bed,
 
-"Don’t say something so ridiculous; don’t you realize what will happen at this temperature?  Are you going to be able to use that bentou box again with the rotting rice still inside it?  Isn’t that disgusting?  I know it is to me.  So I’m going to wash mine right now.  I don’t know about yours though."
+"You must have taken a peek inside and opened it, right!? You are the worst! You voyeuristic pervert!"
 
-"What’s with that?  Couldn’t you just wash mine for me at the same time then?"
+''Hmph!'' She turned her back towards Ryūji and sat before the short table.
 
-"This isn’t a matter of labor, it’s a matter of consideration and common sense.  Since I made your lunch for you, you should wash the box before returning it.  When the temperature is this high in spring and summer, you should clean out your bentou box.  A word of warning about mold infestations, being unprepared for decay-causing microbes is the worst possible mistake!...The only microbes that I love in this world are ‘lactic-acid bacilli’, ‘bacillus subtilis natto’, and ‘the necessary bacteria that live in the mouth and intestines’."
+"... No, it isn't like that! I... well... I saw it through the lighting."
 
-He forced the bentou box back into the hands of Taiga, who was frowning with a look of serious disgust, and started prodding her into standing up.  And then, just when he had finally been able to ever so slowly separate Taiga at least five centimeters from the chair,
+Though it wasn't entirely correct, Ryūji had to settle for that answer, though he wasn't sure whether she was even listening. Sitting in front of the table, she flattened the tiny hill of rice using her spoon and then in a strangely intense atmosphere, slowly brought the rice towards her little mouth.
 
-"Takasu-kun!  That was fun earlier~!"
+''Munch, munch, munch, munch, gulp.'' She then sipped a spoonful of soup. ''Ah...'' And then released a sigh of relief before sipping another spoon. Facing Aisaka, Ryūji brought up the issue he was thinking about while cooking,
 
-…He just wanted to scream, ‘Why?!’.
+"Hey, Aisaka, listen to me. It's like this..."
 
-"Y, yeah."
+''Munch munch munch munch''
 
-"I hope we can talk easily like that again sometime."
+"Your letter... I mean that envelope, there's nothing to be ashamed of, even if I saw what was inside..."
 
-Leaving the group of girls, Ami had walked about halfway to where they were sitting.  Facing Ryūji and waving a slender arm, she had an unrestrained beautiful smile plastered over her entire face.  The simple uniform fit her well-proportioned limbs almost criminally well, but in Ryūji’s mind, she no longer fell into the categories of ‘cute’ or ‘beautiful’ or anything like that.  The fact that she was two-faced outranked any of that.
+''Munch munch munch munch munch munch munch, chew! Crunch!''
 
-…Or at least, that should have been the case.
+"I think..."
 
-"…Hey, you know…it’s about our secret chat from earlier."
+''Chomp chomp chomp chomp chomp chomp chomp chomp chomp chomp!''
 
-"Y, yes?!"
+"Hey, listen to me!"
 
-Ami suddenly got really close.  While he wondered what in the world she was thinking, Ami gently bent her slender body over and brought her lips close to Ryūji’s ear.  The warmth of her breath tickling his earlobes caused Ryūji’s pores to open all the way.  In a sweet voice,
+"Seconds!"
 
-"…Um, about what we discussed earlier.  Really try to forget about it, okay…Please, all right?"
+"Okay."
 
-Her whisper flowed out gently even though the nearby Taiga was right before her eyes.  Without saying anything to either Ami or Ryūji, Taiga just…stared with a look cold enough to freeze water.  
+''Good thing I made extra...'' Ryūji muttered to himself, scooping all the rice from the frying pan into the bowl and returning it Aisaka.
 
-And then Ami pulled away from Ryūji’s ear with a short ‘Ehe’---While her eyes hinted just a little bit of sadness, she displayed a praiseworthy smile.  Then silently turning to Taiga, she gave a look of pitying or sympathetic kindness.  Her eyelashes cast a faint shadow on her face, and Ryūji unconsciously stared as if spellbound---
+"Like I said... listen to me already!"
 
-"…I have class work I need to do."
+''She doesn't seem to be listening. Is this what you call undivided attention? Just where does all the food go in that tiny body of hers?'' Aisaka focused on nothing else but fried rice, fried rice, and still fried rice... This was her personal Fried Rice Festival.
 
-Taiga’s voice broke his trance.  No good, he got caught again…Or maybe he should say, he was deceived again.
+''This is going nowhere and the fried rice's gonna run out soon.'' Ryūji decided to stand up and bring the birdcage from the corner of the living room over.
 
-With a bang, the Taiga who had pulled Ryūji back to the real world forcibly jammed the bentou box at his chest before getting up from her seat.  At that instant, Ryūji sighed thinking, ‘At least another quarrel has been avoided for now’.  She should have let it go, but Ami followed after Taiga anyway.  As Ami pestered her, saying ‘Hey’ and other such things, Taiga’s hair for just a second literally and truly puffed up like it had exploded.
+"Hey Aisaka, come and have a look at this... it's tasty!"
 
-"How surprising…I can’t believe that we ended up in the same class…You know, this is just my impression from up until now, but…Aisaka-san, do you not have any friends other than Takasu-kun?"
+"Something tasty?"
 
-"…Shut up you damned brat, do you want me to make you cry again?"
+Now that he had her attention... ''Whoosh!'' Ryūji removed the cloth on the birdcage and showed her its contents.
 
----They clashed for only a moment.
+"WAH!!!"
 
-No one---In that moment of confrontation unnoticed by anyone other than Ryūji, Ami and Taiga exchanged glances only for that one moment.  
+"Well? He looks disgusting, doesn't he?"
 
-The two quickly looked away from one another and walked off in their respectively opposite directions.  It would be fine if this was as far as things would go, but…he tried to ignore the ominous chill of presentiment running down his back.
+Past experiments had shown that only an earthquake of magnitude 4 or above could wake up Inko-chan... A spasmodic face, rolling white eyes, a wide open beak, and his weird tongue sticking out... The ugly sleeping face quickly worked its wonders and Aisaka bounced backwards.
 
-However, while the two had only now clearly identified each other as rivals, the fuse had already been lit a long time ago.
+"That's disgusting! Why'd you show me something like that!?"
+
+Apparently she could finally hear what Ryūji was saying.
+
+"... Sorry about that Inko-chan, so go back to sleep... Anyway, Aisaka!"
+
+After covering Inko-chan with the cloth, Ryūji sat directly opposite from Aisaka, who had finally returned to her senses. ''What do you want!?'' Her eyes read as she glared at Ryūji, though she still had the bowl in her arms as she continued with her Fried Rice Festival.
+
+"Just eat and listen. What I want to say is... that there's nothing to be ashamed of. We're second year high school students, it's only natural for us to have one or two people of the opposite gender that we fancy, so there's nothing wrong with writing a love letter. Don't all the couples right now have to go through all these troubling things in order to get together?"
+
+"..."
+
+She chewed while covering her face with the bowl. She still appeared to be feeling embarrassed.
+
+"But then again, who would really put their love letter into the wrong bag? ... Not to mention forgetting to place the letter inside the envelope."
+
+Once Ryūji finished...
+
+"It's all your fault!"
+
+''Slam!'' Aisaka suddenly pounded her fist on the table. She looked up and pointed the spoon at Ryūji,
+
+"... You've been rambling on for quite some time now. Let me set things straight, I was still hesitating on whether to put that letter inside the bag when you appeared. I panicked and wanted to hide the letter, so I ended up putting it inside by mistake... I never thought that it would be your bag..."
+
+"Hey, Aisaka... you've got some rice on your cheek."
+
+"You. Are. Annoying."
+
+"Ugh..."
+
+Her eyes flashed terrifyingly like a sharp blade. Under a glare like that, Ryūji quickly shut up and stopped talking.
+
+She now appeared to be fully recharged with her full stomach. ''Hmph'', She proudly lifted her chin and locked on Ryūji with those killing eyes. The Palmtop Tiger, now fully re-energized and ready to kill, gave a low and savage growl.
+
+"Takasu Ryūji... this wouldn't have happened if you had obediently handed over that bag... Now how should I punish you? How should I remove your memories! After doing something so embarrassing, how do you expect me to live on!?"
+
+''We're going in circles here.'' Ryūji clutched his head for a while, and then...
+
+"Didn't I already say there's nothing to be ashamed of!? Look, you stay here and wait!"
+
+Ryūji's decided to burn both ends of the candle.
+
+Leaving the living room, he entered his room and came out carrying loads of stuff and placed them all before Aisaka. There were many notebooks and small notes, CDs, illustration books, a second hand MD player and more. ''Since it's come to this, I'll show you everything. Everything.''
+
+"What are these?"
+
+"Just have a look at them. Feel free to pick anything up."
+
+''Tch!'' Aisaka annoyingly grabbed the nearest notebook and gave it a flick. Her fingers then stopped as she scowled and looked at the notebook and Ryūji.
+
+"Seriously, what's this? What are you doing?"
+
+"That's a 'catalogue'. You probably don't know what that is. It's a playlist of concert songs I compiled for the girl that I like. I might as well tell you, the songs are arranged according to different seasons, so there's four themes in total. I even made MD recordings of those songs."
+
+"And this is it." Ryūji then turned on his MD player and stuffed the earphones into a reluctant Aisaka's ears. From the faint music coming out from the earphones, Ryūji could tell that it was the first song for his summer concert.
+
+"And this is a poem I wrote. At the time I was thinking 'What Christmas present should I give to her after we become a couple?" when writing it. Would perfume be fine? Sure, but it had to be <span class="plainlinks">[http://en.wikipedia.org/wiki/Eau_de_toilette Eau de Toilette]</span>! I've even got all the names of the perfume brands listed, I also took the trouble to find out the prices for each bottle of perfume and wrote them all down... How about that? That's the sort of stuff I used to do."
+
+"That's disgusting!"
+
+Aisaka pulled out the earphones and threw them back at Ryūji as though they were something dirty. Although he got hit by earphones, Ryūji did not back down,
+
+"If it's disgusting, then so be it. But the reason I'm telling you is because I don't feel ashamed of it! What's wrong with liking a girl!? I'll admit I'm hopeless in not having the courage to confess my feelings and only indulging in my fantasies, but I find nothing to be ashamed of!"
+
+''Well, maybe I am a bit ashamed, but since I've already said it...'' Just at that moment, Ryūji lost his balance as he turned around and the thing which he didn't want to show Aisaka now slid to her feet.
+
+"Ah! Not that..."
+
+"... What's this? An envelope?"
+
+He tried desperately to grab the envelope back, but he was one step behind the pair of tiny hands and ended up grasping at air instead.
+
+"From Takasu Ryūji... To Kushieda Minori-san... Kushieda Minori-san!!??"
+
+"T, that's... no, w, wait, don't..."
+
+"A love letter!? And... for Minorin!? You!? This as well!? And this!?"
+
+There was no room for denial. Those three love letters were only written to make himself feel better, and were not meant to be delivered. They were now all under the spotlight.
+
+"Uwaa... you? Like Minorin... Eh!? ... You're joking!? Aren't you a bit full of yourself now..."
+
+"Y, you're not any better, are you!? What's with that 'eh'!? Don't you have a crush on my pal Kitamura as well..."
+
+"... S, shut up, didn't I tell you to forget about that? ... And instead of squirming about, hurry up and confess already!"
+
+"I can say the same to you!"
+
+"You want to bring your wooden blade? Or do you want to throw that away!?" "You want a piece of me? Or you want something even better?" After bickering with each other for a while...
+
+"AH!"
+
+Ryūji suddenly realized that with all the commotion, the sky outside the window had started to brighten... the sun was about to rise.
+
+"Damn! It's four already!"
+
+It's almost time for Yasuko to come home from work. ''Things will get bothersome if Aisaka continues to stay here, as Yasuko will ask a lot of questions, and besides, I don't want anyone else to see Yasuko's face when she comes home, with her moaning "Ryū-chan, it's Ya-chan~, I'm thir~sty~, mmm" and all.'' 
+
+''Not to mention the landlady's gonna be up once the morning post arrives. She'll probably come up to complain about the noise we made first thing in the morning... No, she may already be up and just be waiting for the right time to come up.'' Ryūji instantly went pale at such a possibility. ''Oh shit. If the landlady throws us out now, we won't have any money to find another place to live... Our savings were used up last month (selfishly by Yasuko) to buy a flat-screen TV that doesn't fit with the apartment...''
+
+"A~nyway! I won't tell this to anyone and I don't see Aisaka as an idiot, since I'm hardly any better. So let's put an end to this, okay?"
+
+"... No, I can't do that."
+
+"Why!? For now just get the hell... I mean please go home for now...! My sick mom's about to come home..."
+
+In a way, she is indeed quite sick, so he wasn't exactly lying, but...
+
+"No! I don't trust you, besides... besides..."
+
+Like a small kid, Aisaka kneeled down right in the middle of the living room. Staring at her knees, she twirled her fingers around the tatami and said,
+
+"... Um, that... love letter, what should I do... I just don't feel it's time to deliver it yet..."
+
+''Great! Aisaka chooses now to ask me for tips on romance!'' "AHHH!" Ryūji clutched his head and said,
+
+"I, I'll tell you about it some other day! C'mon, just go home for now... I beg you!"
+
+"... Are you sure you're going to tell me about it then?"
+
+"Yes! Definitely! I'll listen to anything you say, and I'll help out in anything you ask. I swear!"
+
+"... You're going to help me? No matter what?"
+
+"Yes! Anything, anything!"
+
+"You'll help in anything? You said so... You'll help me like a dog? And do everything for me as my dog?"
+
+"Yes, yes! I'll work hard like one, I swear! Whether as a dog or anything, I'll help! ... So, let's end this today, okay? Okay?"
+
+"Okay... Then I'll go home."
+
+She finally seemed to accept. Aisaka picked up her wooden blade and got up. She took a glance towards the window, there was a pair of small shoes thrown beside its base. ''So she did crawl in through there...'' Aisaka turned to glance at Ryūji who was muttering, then picked up her shoes and headed for the entrance. Suddenly she turned around,
+
+"Hey!"
+
+''What is it now!?'' Ryūji made a defensive stance, but...
+
+"Is there anymore... fried rice?"
+
+"Huh? Oh, no... cause you ate it all."
+
+"That so? Ah well."
+
+"You're still not full? That was four bowls worth of rice. Are you really that hungry?"
+
+There was no reply. Aisaka turned her back towards Ryūji and put on one shoe.
+
+"... The fusuma..."
+
+She said quietly and turned around without warning again.
+
+"Man, you sure talk a lot."
+
+"There's a hole in the fusuma... is fixing that going to cost a lot?"
+
+She asked while looking up at Ryūji, her large eyes blinking two to three times. Feeling his heartbeat going wild, Ryūji avoided Aisaka's eyes. Not because he was afraid, but because he was puzzled. This was the first time he'd ever seen Aisaka not looking angry.
+
+"Ahh... um... if it's fixing that, I can handle it myself... I think. I just had a look, the hole isn't that big, so it'll be fine if I have some good quality washi. Though you can only find normal quality washi paper in these parts."
+
+"Hmm..."
+
+He couldn't tell what she's up to with that expressionless face.
+
+"Washi... If possible, you can use this!"
+
+Aisaka stuck something out. ''She wants me to use this?'' ... Ryūji looked confused at the thing that she stuffed into his hand. ''How should I put this? Asking me to fill the hole in the fusuma using her letterless love letter envelope...''
+
+"If you find that useful, then use it! If you need money to fix it, I'll pay for it."
+
+"Ah... er... um!"
+
+Without answering whether she was full or not, Aisaka began to tie her shoelaces with a scowl. Looking at that round back of hers, he just felt...
+
+"... Hey, wait a moment!"
+
+He just felt he had to call her.
+
+"What now?!"
+
+"... How long have you not eaten?"
+
+"Why do you care? It's not like I don't eat... I got tired with the stuff from the convenience store... so even after buying them I couldn't bring myself to eat..."
+
+"Convenience store? All three meals? Wouldn't that be bad for your health?"
+
+"There was a fast food stall in front of the station, but it closed down last month. So I could only get food from the convenience store... the cooked food in the supermarket... how do I put it... I don't know how to buy it..."
+
+"You don't know how to buy it? Just pick what you like and put it into a transparent box, and then take it to the cashier to weigh it and that's it... By the way, where're your parents?"
+
+After tying her shoelaces, Aisaka stood up. Ryūji saw her shake her head ambiguously. ''Oh dear. Every family has their secrets, especially the seemingly enigmatic Aisaka family. Even if something unimaginable had happened within that family, there was nothing to be astonished about. I came from quite a tough family background myself, but I got on well with it, so how could I have come up with such an inconsiderate question?'' Feeling embarrassed, Ryūji did not ask further and simply stood and watched the figure with long hair open the door and walk out.
+
+"Ah, wait! Let me walk you home! It's a bit dangerous to walk alone at this time of day..."
+
+"Relax, I live closeby... Besides, I have a wooden blade."
+
+"No, wouldn't that be even more dangerous?"
+
+"It's really close! Anyway, bye, Ryūji, see you tomorrow."
+
+She turned and ran off. Ryūji quickly put on his slippers and without even locking his door, tried to give chase. Yet from his entrance looking downstairs, Aisaka was nowhere to be seen... ''She sure possesses some extraordinary speed in her legs.''
+
+"... In the end I let her go back alone. By the way..."
+
+''Did she just call me by my first name?''
+
+Ryūji blinked and looked with a screwed up face in the direction that Aisaka had disappeared into... He wasn't angry, just feeling very confused.
+
+
+
+Before sunrise, just before Yasuko returned, Ryūji had already tidied his room up. This was thanks to his habit of tidying things up.
+
+From that day onwards, on the fusuma in the Takasu residence was attached a small pattern of light pink cherry blossom petals.
+
 
 
 <noinclude>
 {| border="1" cellpadding="5" cellspacing="0" style="margin: 1em 1em 1em 0; background: #f9f9f9; border: 1px #aaaaaa solid; padding: 0.2em; border-collapse: collapse;"
 |-
-| Back to [[Toradora!:Volume2 Chapter1|Chapter 1]]
+| Back to [[Toradora!:Volume1 Chapter1|Chapter 1]]
 | Return to [[Toradora!|Main Page]]
-| Forward to [[Toradora!:Volume2 Chapter3|Chapter 3]]
+| Forward to [[Toradora!:Volume1 Chapter3|Chapter 3]]
 |-
 |}
 </noinclude>
